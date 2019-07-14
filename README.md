@@ -2,4 +2,4 @@
 it will be dreadful
 
 
-I got this idewa from reddit hopefully i can somehow make it worse
+I got [this idea](https://www.reddit.com/r/ProgrammerHumor/comments/6l3u9i/recycling_old_meme/) from reddit hopefully I can somehow make it worse
